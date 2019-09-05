@@ -1,2 +1,2 @@
-MATEMATIKA SIMPEL!!!!!!!!!
+MATEMATIKA SIMPEL!!!!!!!!!\n
 Author : Maulana S.A
